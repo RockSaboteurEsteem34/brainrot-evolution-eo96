@@ -1,4 +1,4 @@
-#  
+#  brainrot evolution Script stealth is the best brainrot evolution Script, featuring one-hit kill and fly. Safe and powerful for all your needs.
 
 
 
